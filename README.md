@@ -1,1 +1,3 @@
 - 👋 Hi. I love Open Source.
+- I created this work-specific account to keep my main account free of legal issues.
+- Find me at http://www.duanefking.com 
